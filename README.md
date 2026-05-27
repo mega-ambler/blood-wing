@@ -11,8 +11,8 @@
     </td>
   </tr>
 </table>
-ㅤㅤㅤㅤㅤcuzㅤiㅤwouldㅤanyways,ㅤwe'dㅤendㅤupㅤlikeㅤalways.
+ㅤㅤcuzㅤiㅤwouldㅤanyways,ㅤwe'dㅤendㅤupㅤlikeㅤalways.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmwㅤ﹠ㅤgift.ㅤ @mega-ambler
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ mwㅤ﹠ㅤgift.ㅤ @mega-ambler
 
 ㅤ
